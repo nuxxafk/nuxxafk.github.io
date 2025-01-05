@@ -17,8 +17,8 @@ But what's wonderful about this world is it gives you time to learn.
 
 Luckily, I learn. 
 
-This year is for personal and relationship growth. 
-Mix in some professional growth in there. 
+This year is for personal and relationship growth.<br/> 
+Mix in some professional growth in there. <br/>
 Old habits die hard but they die eventually. 
 
 I said bye to non-essential things, non-essential people. <br/>
