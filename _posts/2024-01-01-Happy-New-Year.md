@@ -21,7 +21,7 @@ This year is for personal and relationship growth.
 Mix in some professional growth in there. 
 Old habits die hard but they die eventually. 
 
-I said bye to non-essential things, non-essential people.
+I said bye to non-essential things, non-essential people. <br/>
 This is a year to stay & lay low, so I can be propelled to greater heights. 
 
 You'll never see me again, 
