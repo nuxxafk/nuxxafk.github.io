@@ -22,7 +22,6 @@ Mix in some professional growth in there. <br/>
 Old habits die hard but they die eventually. <br/>
 The cycle has to be broken in order for us to achieve things. <br/>
 
-I say bye to non-essential things, non-essential people. <br/>
 This is a year to stay & lay low, so I can be propelled to greater heights. 
 
 - master
