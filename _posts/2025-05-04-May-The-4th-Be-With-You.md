@@ -13,7 +13,7 @@ It's weird that before this year, "family" for me is just an organization you ha
 
 But seeing that I seem to be loving family time now, so much so that I maybe starting my own soon, everything changes.
 
-You know when it's 3am, it's quiet, I sometimes wish Dad was here or I just wished I had this thing back then. 
+You know when it's 3am, it's quiet, I sometimes wish Dad was here or I just wish I had this thing back then. 
 
 Instead of treating it of what I had treated it as before. Because I've been a stubborn idiot back then. 
 
