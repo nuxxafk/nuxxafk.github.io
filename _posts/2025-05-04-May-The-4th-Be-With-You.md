@@ -13,8 +13,6 @@ When I met someone, or dated someone for this past 2 years or so. I made sure I 
 
 It's been a while I said. And one can not just stay in that scene for so long. So I've loved and I've lost. Which what I've always intended to happen anyway. I had to break a few things and break my own rules so I can it get over with. Including the rule, that family will always come first.
 
-So now that type of love has ran out, I probably won't be in the scene for a while. Well.. like I said. I'm laying low. 
-
 It's weird that before this year, "family" for me is just an organization you have to prioritize and maintain. 
 
 But seeing that I seem to be loving family time now, so much so that I maybe starting my own soon, everything changes.
