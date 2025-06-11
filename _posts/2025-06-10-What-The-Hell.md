@@ -14,7 +14,7 @@ i started to crawl back into life,
 and this is what inspired me.
 
 i've always been an available person, 
-a person you can go through,
+a person you can go to,
 a person you can always talk to;
 because i've always wanted to help everybody,
 again, to make a difference
