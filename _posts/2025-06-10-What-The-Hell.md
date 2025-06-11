@@ -54,7 +54,7 @@ i almost feel as if I have no chance to breath for relaxation, (but it's cebu, m
 i've been so busy i can no longer remember what happened last week lol
 so yeah, i'm pretty much unavailable now. 
 
-it's pretty much impossible to get time from me now,
+it's impossible to get time from me now,
 i can't even free up my schedule for myself, lol 
 
 anyway,
