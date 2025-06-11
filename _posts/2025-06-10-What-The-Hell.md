@@ -63,7 +63,7 @@ i don't even know why i still use this blog,
 knowing that this is not even active anymore, 
 but i call a spade a spade.
 
-this helps and this make a difference.
+this helps and this makes a difference.
 
 thanks,
 master
